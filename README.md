@@ -1,1 +1,0 @@
-# tindybgno1
